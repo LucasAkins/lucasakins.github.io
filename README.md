@@ -5,9 +5,9 @@
 
 # About Me
 ## My Interests
-1. Making cocktails for friends as well as bar patrons.
-2. Learning new submissions, takedowns, and sweeps in Brazillian Jiu-Jitsu.
-3. Playing video games such as Fortnite, Team Fortress 2, and Pokemon. 
+1. Making cocktails for friends as well as bar patrons. I'm a full-time bartender so I like to practice making new drinks on my friends before I serve them for guests at my bar.
+2. Learning new submissions, takedowns, and sweeps in Brazillian Jiu-Jitsu. I have been training BJJ for nearly 5 years, so expanding my arsenal of attacks and escapes and perfecting them has become one of my favorite things to do in my free time,  
+3. Playing video games such as Fortnite, Team Fortress 2, and Pokemon. I grew up playing on Nintendo consoles, so Pokemon will always have a place in my heart. Team Fortress 2 was the first game that I discovered when I got a desktop in middle school, and I still play it to this day. Fortnite is the one game I want to stop playing, but at this point, I think I am addicted. I recently bought a new gaming PC to replace my old one because the game didn't perform as well as it used to. 
 ## Websites that I frequent
 1. [YouTube] (https://www.youtube.com)
 	I often use YouTube to watch content on my interests in my free time. YouTube has plenty of tutorials on building certain cocktails I have not made before, videos on how to drill a new move in BJJ, and gaming content from some of my favorite creators. This site also has a "Shorts" feature, similar to how TikTok and Instagram Reels work, which is great to use when you don't know what to watch. 
